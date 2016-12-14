@@ -1,1 +1,1 @@
-# nuevo-horizonte-
+# nuevo-horizonte-bueno en realidad soy nuevo en este campo de programacion y este tipo de temas, pero en realidad me gusta y quiero aprender, diria yo que esa es la base para un mejor aprendizajes. Si alguin quiere ayudarme con informacion, tips y de-mas quedo totalmente agradecido :)
